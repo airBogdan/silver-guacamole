@@ -361,3 +361,22 @@
 [View on Twitter](https://twitter.com/aleabitoreddit/status/2061718299139100931)
 
 ---
+<!-- tweet:2061754446648926600 -->
+<a id="2061754446648926600"></a>
+## 2061754446648926600
+
+**@crux_capital_** · 2026-06-02 10:19 UTC
+
+> It has been posted!
+> 
+> My Physical AI portfolio I am building from scratch.
+> 
+> With weightings, entry levels, theses, financial modeling etc.
+> 
+> I wish that when I was building my optics port at the end of last Summer, I could have built it real time with my audience.
+> 
+> This is another
+
+[View on Twitter](https://twitter.com/crux_capital_/status/2061754446648926600)
+
+---
