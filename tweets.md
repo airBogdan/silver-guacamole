@@ -469,3 +469,44 @@
 [View on Twitter](https://twitter.com/investingluc/status/2061161842030891199)
 
 ---
+<!-- tweet:2061792524230930764 -->
+<a id="2061792524230930764"></a>
+## 2061792524230930764
+
+**@ohiain** · 2026-06-02 12:50 UTC
+
+> RT @ohiain: You'd probably do 100x better as a trader if you earned the right to bottom fish ~5/10% of the time.
+> 
+> 90% of my focus is on lea…
+
+[View on Twitter](https://twitter.com/ohiain/status/2061792524230930764)
+
+---
+<!-- tweet:2061791837979828233 -->
+<a id="2061791837979828233"></a>
+## 2061791837979828233
+
+**@ohiain** · 2026-06-02 12:47 UTC
+
+> RT @ohiain: I lost $60,000+ during my first 2 years in the Market trading 0DTEs &amp; penny stocks.
+> 
+> Please don't be me.
+> 
+> This is exactly what…
+
+[View on Twitter](https://twitter.com/ohiain/status/2061791837979828233)
+
+---
+<!-- tweet:2061775666484240882 -->
+<a id="2061775666484240882"></a>
+## 2061775666484240882
+
+**@ohiain** · 2026-06-02 11:43 UTC
+
+> This month I'll be traveling to Newport Beach, CA, Bozeman, MT &amp; Fort Collins, CO!
+> 
+> If you've been to any of these places and have recommendations for food, hikes, coffee shops, golf, or anything worth checking out, I'm all ears.
+
+[View on Twitter](https://twitter.com/ohiain/status/2061775666484240882)
+
+---
