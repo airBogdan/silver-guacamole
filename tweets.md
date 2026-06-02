@@ -380,3 +380,92 @@
 [View on Twitter](https://twitter.com/crux_capital_/status/2061754446648926600)
 
 ---
+<!-- tweet:2061623584171479107 -->
+<a id="2061623584171479107"></a>
+## 2061623584171479107
+
+**@investingluc** · 2026-06-02 01:39 UTC
+
+> It's ok to evolve. I'm not the same investor as I was a few years ago. 
+> 
+> Some major things I've changed:
+> 
+> - mostly options -&gt; mostly shares
+> - adding cheap names -&gt; joining leaders
+> - 30+ names at once -&gt; 5-10 high conviction
+> - one-dimensional thesis -&gt; multifaceted, deeper
+> - focus
+
+[View on Twitter](https://twitter.com/investingluc/status/2061623584171479107)
+
+---
+<!-- tweet:2061449180359336239 -->
+<a id="2061449180359336239"></a>
+## 2061449180359336239
+
+**@investingluc** · 2026-06-01 14:05 UTC
+
+> RT @investingluc: Dynamite add spot on $NBIS right now. My bread &amp; butter...add on weakness within an ultra strong trend.
+> 
+> $NBIS sitting on…
+
+[View on Twitter](https://twitter.com/investingluc/status/2061449180359336239)
+
+---
+<!-- tweet:2061444173962649786 -->
+<a id="2061444173962649786"></a>
+## 2061444173962649786
+
+**@investingluc** · 2026-06-01 13:46 UTC
+
+> RT @investingluc: If you wouldn’t pitch a trade idea to your parents or a loved one, it’s not worth trading...you don't have real convictio…
+
+[View on Twitter](https://twitter.com/investingluc/status/2061444173962649786)
+
+---
+<!-- tweet:2061436521211637859 -->
+<a id="2061436521211637859"></a>
+## 2061436521211637859
+
+**@investingluc** · 2026-06-01 13:15 UTC
+
+> I look for relative strength prior to extension...meaning a stock that is up on the week/month, but hasn't really had a true multi-standard deviation move.
+> 
+> Something that's grinding higher and seeing healthy waves of upside followed by consolidation @ highs.
+> 
+> Shows demand is https://t.co/qVybiRU2Ki
+
+[View on Twitter](https://twitter.com/investingluc/status/2061436521211637859)
+
+---
+<!-- tweet:2061178334206181844 -->
+<a id="2061178334206181844"></a>
+## 2061178334206181844
+
+**@investingluc** · 2026-05-31 20:09 UTC
+
+> If you wouldn’t pitch a trade idea to your parents or a loved one, it’s not worth trading...you don't have real conviction.
+> 
+> One of my fav filters.
+
+[View on Twitter](https://twitter.com/investingluc/status/2061178334206181844)
+
+---
+<!-- tweet:2061161842030891199 -->
+<a id="2061161842030891199"></a>
+## 2061161842030891199
+
+**@investingluc** · 2026-05-31 19:04 UTC
+
+> Why are you special? 
+> 
+> Was reading “laughing at wall street”…and one of the core ideas is that if you want outlier returns, you have to do something meaningfully different. Against the grain. Get laughed at. Be the outcast.
+> 
+> Ways to be an outlier:
+> 
+> 1) novel/unique info
+> -
+
+[View on Twitter](https://twitter.com/investingluc/status/2061161842030891199)
+
+---
